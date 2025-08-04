@@ -1,1 +1,0 @@
-# Minggu1_ARCH
